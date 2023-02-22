@@ -4,7 +4,7 @@ Triclone Technologies provides services that connect people. We as a team will b
 
 
 ## 🚀 About Us
-We are a team of Students who wanted to build something of their own! So here we go! Managing and building our own organization and building our own apps and softwares!
+We are a team of Experts who wanted to build something of their own! So here we go! Managing and building our own organization and building our own apps and softwares!
 
 
 ## Website
